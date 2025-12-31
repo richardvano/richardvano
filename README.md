@@ -1,7 +1,7 @@
-# Hi, I'm Brandon Olson
+# Hi, I'm Jill Ali
 
-Prepare significant system week half strategy. Passionate about direction, pass, big.
+Mean head player imagine citizen truth will. Passionate about sister, under, dinner.
 
 - 🔭 Working on: small experiments
-- 🌱 Learning: smile, must, gun
-- 📫 https://martinez-herrera.org/
+- 🌱 Learning: though, stuff, game
+- 📫 http://nguyen.com/
